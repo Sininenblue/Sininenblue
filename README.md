@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sininenblue
+- 👀 I’m interested in making video games
+- 🌱 I’m currently learning how to make video games
+- 💞️ I’m not looking to collaborate on
+- 📫 You can reach me through twitter @Sininenblue
